@@ -7,6 +7,7 @@ Lead Solution Design Consultant learning more about the solutions she consults o
 Retail | Grocery | Merchandising | Operations | Supply Chain | Inventory Management
 
 Masters of Science in Quantitative Management | Class of 2022
+
 Duke University | Fuqua School of Business
 
 Is there a style guide for this thing? Where are the gifs?
